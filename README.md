@@ -36,7 +36,9 @@ https://docs.google.com/spreadsheets/d/1BYFbvnW0FHplRgsPbVNxtk2F0UBBgvCqZWzvqYcA
 Financial Advice: A % of all your profits made by projects suggested in the #🦍-degen-discussions should go to you buying more BIFI.
 
 
-
+<br>
+<br>
+<br>
 
 Some useful links for Fantom:
 
